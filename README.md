@@ -1,0 +1,3 @@
+- 👋 opa, @mazizzpx
+- 👀 aprendendo a programação JavaScript
+- 🌱estudante do lysimaco. 1F
